@@ -1,2 +1,0 @@
-# belgium-smokkelroute
-tourist entrance
